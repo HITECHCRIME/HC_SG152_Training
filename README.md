@@ -19,6 +19,8 @@ https://www.youtube.com/watch?v=yGN2QfgfHIk
 hitech crime (electronic voice, glitch, GLADOS style but with darkness)
 *whistling wind, some electronic noises of the street, like buzzing electricity from neons*
 
+"learned a lesson, your turn"
+
 HOOK (coming up)
 
 With gold come knots tied on tight klout calls
@@ -34,10 +36,9 @@ My tribe uses doubt and fear to conquer flaws
 Fear in the eyes of the public
 When I drop the bombs
 Landlines filled with blots
-I slides what everybody does, anybody knows 
-that
-
-ominous voice
+I slide,  what everybody does, anybody knows 
+that I tend to search for costs
+usually chunks of soul
 
 ```
 
