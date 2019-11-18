@@ -23,7 +23,7 @@ Description.
 
 9  With gold come knots tied on tight klout calls
 11 For blood, sacrifice darkness to the rap gods
-7  my tribe uses fear and doubt to conquer flaws 
+7  my tribe uses doubt and fear to conquer flaws 
 
 Fear in the eyes of the public
 When I drop the bomb
