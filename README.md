@@ -1,6 +1,6 @@
 ![](mothnode_tribe.png)
 
-# MOTHNODE_ Tribe (prod. in:exhale/Sylar)
+# /// MOTHNODE_ Tribe (prod. in:exhale/Sylar)
 
 **Listen now:** 
 
