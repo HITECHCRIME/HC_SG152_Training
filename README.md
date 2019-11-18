@@ -24,7 +24,6 @@ With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
-
 9  
 11 
 7  
