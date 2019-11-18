@@ -13,6 +13,8 @@ https://www.youtube.com/watch?v=yGN2QfgfHIk
 
 **Production:** in:exhale/Sylar / **Lyrics:** MOTHNODE
 
+**STATUS:** lyrics fine-tuning
+
 ## Lyrics
 
 ```
