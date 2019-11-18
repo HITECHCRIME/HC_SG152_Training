@@ -33,10 +33,13 @@ With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
+Reversed the costs at the speed of flow
+
+
 Fear in the eyes of the public
 When I drop the bombs
 Landlines filled with blots
-I slide,  what everybody does, anybody knows 
+I slide off,  what everybody does, anybody knows 
 that I tend to search for costs
 usually chunks of soul
 
