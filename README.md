@@ -16,15 +16,18 @@ Description.
 ## Lyrics
 
 ```
-
 9  All gold, is knots tied on by klout calls
 11 Landlines filled sacrificial for the rap gods
 7  The quintessential outlaw
 
-9  With gold come knots tied on tight klout calls
-11 For blood, sacrifice darkness to the rap gods
-7  my tribe uses doubt and fear to conquer flaws 
+With gold come knots tied on tight klout calls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer flaws 
 
+
+9  
+11 
+7  
 Fear in the eyes of the public
 When I drop the bomb
 
