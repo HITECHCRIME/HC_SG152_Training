@@ -1,17 +1,17 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Tribe (prod. in:exhale/
+# MOTHNODE_ Tribe (prod. in:exhale/Sylar)
 
 **Listen now:** 
 
 ## Project Data
 
-Description.
+Mix - [FREE] HARD DARK MELODIC FUKKSAILOR X COMETHAZINE X OKAMINOKAMI TYPE BEAT | PROD. SYLER
+https://www.youtube.com/watch?v=yGN2QfgfHIk
 
+**Title:** Tribe / **Featuring:** MOTHNODE
 
-**Title:**  / **Featuring:** 
-
-**Production:**  / **Lyrics:** 
+**Production:** in:exhale/Sylar / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
