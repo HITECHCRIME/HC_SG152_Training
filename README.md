@@ -43,6 +43,8 @@ I slide off,  what everybody does, anybody knows
 that I tend to search for costs
 usually chunks of soul
 
+*electric explosion - overloaded street generator with sparks hiting the pavement ;p not sure just yet, everything can be changed to fit a mutual vision*
+
 ```
 
 ## Lyrics Testing Ground
