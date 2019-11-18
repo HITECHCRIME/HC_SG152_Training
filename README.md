@@ -17,9 +17,24 @@ Description.
 
 ```
 
-Air poured, all knots tied on by klout norms
-The line ravaged in the wake of this rap gods
-The quintessential outlaw
+9  All gold, is knots tied on by klout calls
+11 Landlines filled sacrificial for the rap gods
+7  The quintessential outlaw
+
+9  With gold come knots tied on tight klout calls
+11 For blood, sacrifice darkness to the rap gods
+7  my tribe uses doubt to enjoy 
+
+Fear in the eyes of the public
+When I drop the bomb
+
+
+fill landlines 
+ slides what everybody does, anybody blows 
+
+ominous voice
+
+
 
 Eye of the storm, my tears fall as a torrential downpour
 The flood, your death wish written in blood
@@ -76,10 +91,13 @@ It's the last twilight before the silence of death
 
 12 Gripping a club, primitive as Stig of the Dump
 11 Swinging a punch, the bad seed pick of the bunch
+
 12 I drink black rain, take another swig and I'm drunk
 12 Taste venom on the tip of my tongue, my lips cold
+
 13 Spitting out toxins I couldn't dissolve or withhold
 9  I never sold my soul for fool's gold 9
+
 11 So I'm still free, but too numb to feel pity
 11 Some broke down, now the still city's a ghost town
 
