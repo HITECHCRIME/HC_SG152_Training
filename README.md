@@ -63,7 +63,11 @@ My tribe uses doubt and fear to conquer flaws
 VERSE
 
 Landlines filled with blots
-I slide off,  what everybody does, anybody knows 
+I slide off,  what everybody does,
+
+....
+
+anybody knows 
 that I tend to search for costs
 usually chunks of soul
 
