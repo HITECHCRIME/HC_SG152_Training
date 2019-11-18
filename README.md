@@ -39,8 +39,8 @@ With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
-Fear in the eyes of the public
-When I drop the bombs
+Fear(?) in the eyes of the public
+When I drop the bombs with...
 
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
