@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ TITLE
+# MOTHNODE_ Tribe (prod. in:exhale/
 
 **Listen now:** 
 
@@ -16,9 +16,17 @@ Description.
 ## Lyrics
 
 ```
-9  All gold, is knots tied on by klout calls
-11 Landlines filled sacrificial for the rap gods
-7  The quintessential outlaw
+hitech crime (electronic voice, glitch, GLADOS style but with darkness)
+
+HOOK (coming up)
+
+With gold come knots tied on tight klout calls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer flaws 
+
+CHORUS (drop)
+
+
 
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
@@ -36,6 +44,10 @@ fill landlines
 
 ominous voice
 
+
+9  All gold, is knots tied on by klout calls
+11 Landlines filled sacrificial for the rap gods
+7  The quintessential outlaw
 
 
 Eye of the storm, my tears fall as a torrential downpour
