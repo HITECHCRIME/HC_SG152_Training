@@ -35,13 +35,25 @@ My tribe uses doubt and fear to conquer flaws
 
 Reversed the costs at the speed of flow
 
+With gold come knots tied on tight klout calls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer flaws 
 
 Fear in the eyes of the public
 When I drop the bombs
+
+With gold come knots tied on tight klout calls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer flaws 
+
 Landlines filled with blots
 I slide off,  what everybody does, anybody knows 
 that I tend to search for costs
 usually chunks of soul
+
+With gold come knots tied on tight klout calls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer flaws 
 
 *electric explosion - overloaded street generator with sparks hiting the pavement ;p not sure just yet, everything can be changed to fit a mutual vision*
 
