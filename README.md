@@ -1,4 +1,4 @@
-[cover] ![](mothnode_tribe.png)
+![](mothnode_tribe.png)
 
 # MOTHNODE_ Tribe (prod. in:exhale/Sylar)
 
