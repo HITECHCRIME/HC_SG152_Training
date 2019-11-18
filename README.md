@@ -32,11 +32,10 @@ For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
 Fear in the eyes of the public
-When I drop the bomb
-Landlines filled
-
-fill landlines 
- slides what everybody does, anybody blows 
+When I drop the bombs
+Landlines filled with blots
+I slides what everybody does, anybody knows 
+that
 
 ominous voice
 
