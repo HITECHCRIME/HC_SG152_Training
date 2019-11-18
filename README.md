@@ -39,6 +39,7 @@ My tribe uses doubt and fear to conquer flaws
 
 INTERMISSION
 
+Wounds
 Reversed the costs at the speed of flow
 aye
 
@@ -53,7 +54,7 @@ INTERMISSION
 Fear(?) in the eyes of the public
 When I drop the bombs with...
 
-CHORUS
+CHORUS (lower chilled scream)
 
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
