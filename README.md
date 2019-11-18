@@ -16,6 +16,8 @@ https://www.youtube.com/watch?v=yGN2QfgfHIk
 ## Lyrics
 
 ```
+INTRO
+
 hitech crime (electronic voice, glitch, GLADOS style but with darkness)
 *whistling wind, some electronic noises of the street, like buzzing electricity from neons*
 
@@ -33,27 +35,41 @@ With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
+INTERMISSION
+
 Reversed the costs at the speed of flow
+
+CHORUS
 
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
+
+INTERMISSION
 
 Fear(?) in the eyes of the public
 When I drop the bombs with...
 
+CHORUS
+
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
+
+VERSE
 
 Landlines filled with blots
 I slide off,  what everybody does, anybody knows 
 that I tend to search for costs
 usually chunks of soul
 
+CHORUS
+
 With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
+
+OUTRO
 
 *electric explosion - overloaded street generator with sparks hiting the pavement ;p not sure just yet, everything can be changed to fit a mutual vision*
 
