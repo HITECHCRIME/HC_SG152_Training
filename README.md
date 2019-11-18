@@ -38,6 +38,7 @@ My tribe uses doubt and fear to conquer flaws
 INTERMISSION
 
 Reversed the costs at the speed of flow
+aye
 
 CHORUS
 
