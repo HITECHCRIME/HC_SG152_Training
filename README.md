@@ -77,6 +77,8 @@ With gold come knots tied on tight klout calls
 For blood, sacrifice darkness to the rap gods
 My tribe uses doubt and fear to conquer flaws 
 
+blargh
+
 OUTRO
 
 *electric explosion - overloaded street generator with sparks hiting the pavement ;p not sure just yet, everything can be changed to fit a mutual vision*
