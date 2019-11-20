@@ -83,6 +83,12 @@ OUTRO
 
 *electric explosion - overloaded street generator with sparks hiting the pavement ;p not sure just yet, everything can be changed to fit a mutual vision*
 
+///
+
+With gold so thoughts bring the light from souls
+For blood, sacrifice darkness to the rap gods
+My tribe uses doubt and fear to conquer all 
+
 ```
 
 ## Lyrics Testing Ground
